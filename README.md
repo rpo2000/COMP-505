@@ -1,1 +1,1 @@
-Ryan O'Neal Major: CIS I am taking COMP 505 to learn about web development and career opportunities
+Ryan O'Neal Major CIS: To learn about web development and career opportunities.
